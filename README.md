@@ -7,7 +7,7 @@ Subscribe to our YouTube Channel : https://www.youtube.com/channel/UChvSNvJd7nhq
 TWITTER : @munihappy
 https://twitter.com/munihappy
 
-Facebook : @beerbiceps 
+Facebook : @DevelopersGuide 
 https://www.facebook.com/DevelopersGuide 
 
 Linkedin : @munihappy 
